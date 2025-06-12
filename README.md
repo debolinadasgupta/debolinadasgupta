@@ -4,7 +4,7 @@
 Currently supporting digital modernization efforts at the **International Atomic Energy Agency (IAEA)** in Vienna  
 Previously worked with organizations including the **World Customs Organization**, **ADNOC**, **Samsung**, **Alshaya Group**, and **DBS**
 
-Experience delivering projects in: **India**, **UAE**, **Singapore**, and **Belgium**
+Experience delivering projects in: **Austria** , **Belgium** , **India** , **Singapore**, and **UAE**
 
 ---
 
